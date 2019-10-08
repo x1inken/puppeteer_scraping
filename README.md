@@ -2,5 +2,6 @@
 
 
 Pupperteer スクレイピング 
+https://youtu.be/APuu-MIuPlA
 
 
